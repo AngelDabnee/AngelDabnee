@@ -54,6 +54,7 @@ Since I was young, I have been fascinated by computers, always learning about ne
 ---
 
 Thank you for visiting my profile! Feel free to contact me for collaborations or interesting projects.
+---
 
 # Hola, Soy Angel Dabnee
 
