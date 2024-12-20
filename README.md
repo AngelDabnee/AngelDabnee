@@ -46,7 +46,7 @@ Since I was young, I have been fascinated by computers, always learning about ne
 
 ### 📞 Contact
 
-- **Cell Phone:** 6622782034
+- **Cell Phone:** 
 - **Email:** a22311046@uthermosillo.edu.mx
 - **Facebook:** [Angel Dabnee Gonzalez Rodriguez](https://www.facebook.com/AngelDabnee)
 - **GitHub:** [AngelDabnee](https://github.com/AngelDabnee)
@@ -103,7 +103,7 @@ Desde pequeño, he tenido una afición por las computadoras, siempre aprendiendo
 
 ### 📞 Contacto
 
-- **Celular:** 6622782034
+- **Linkedln:** https://www.linkedin.com/in/%C3%A1ngel-dabnee-gonzalez-rodriguez-22208a226?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app 
 - **Correo:** a22311046@uthermosillo.edu.mx
 - **Facebook:** [Angel Dabnee Gonzalez Rodriguez](https://www.facebook.com/AngelDabnee)
 - **GitHub:** [AngelDabnee](https://github.com/AngelDabnee)
